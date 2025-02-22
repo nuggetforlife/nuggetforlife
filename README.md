@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nuggetforlife
+- 👋 Hi, I’m b3an
 - 👀 I’m interested in guns, coding and video games
 - 🌱 i am currantly in primary school
 - 💞️ my current goal is to grow my youtube channel
