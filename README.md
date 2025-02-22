@@ -2,7 +2,7 @@
 - 👀 I’m interested in guns, coding and video games
 - 🌱 i am currantly in primary school
 - 💞️ my current goal is to grow my youtube channel
-- 📫 How to reach me step 1.realize that you cant rech me step 2.give up (:
+- 📫 How to reach me step 1.realize that you cant rech me. step 2.give up (:
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my youtube channel is called BEANZ BOI
 
